@@ -1,9 +1,9 @@
 # lckyfloid.github.io
-**ASTRO FUN FACTS** 
+# **ASTRO FUN FACTS** 
 
 A collection of facts that some fans may not know! This list is far from exhaustive, so feel free to add on! Or you could shoot me a question and see if I know the answer
 >
-**FAMILIES**
+# **FAMILIES**
 
 -MJ has an older brother
 
