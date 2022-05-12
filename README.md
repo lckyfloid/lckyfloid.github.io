@@ -17,7 +17,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - Moonbin attended Hanlim Multi Arts High School from 2014 until his graduation on February 15, 2016; due to having a birthday very early in the year, Moonbin attended school mostly with 97-line
 - Rocky attended Eonbuk Middle School and graduated on February 7, 2015; he then attended Seoul Music High School from February 2015 until October 2015; starting in October 2015, Rocky began attending Hanlim Multi Arts High School and graduated on February 9, 2018
 - Sanha attended Baegwoon Middle School; he attends Hanlim Multi Arts High School and will graduate in 2019
-###**BEFORE ASTRO**
+### **BEFORE ASTRO**
 - MJ auditioned for JYP Entertainment in 2010 with iKON’s Donghyuk (but didn’t make it into the company); he auditioned again in 2012 and won a one year scholarship to Seoul National University; MJ  began training with Fantagio in 2014
 - Prior to joining Fantagio as a trainee, Jinjin was part of a house dance crew (under the dancer name “Kkorang”) with GOT7′s Yugyeom; he began training with Fantagio in 2012, not long after Sanha
 - Eunwoo began training with Fantagio in 2013 after being scouted on the street when he was on the way to the bathroom; he refused the offer several times until his parents eventually told him just to try it out and that he could quit if he didn’t like it; he played the younger version of a character in the movie “My Brilliant Life”; he was the 2014/2015 Shara Shara make up brand ambassador
