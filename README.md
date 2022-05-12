@@ -1,2 +1,2 @@
 # lckyfloid.github.io
-ASTRO FUN FACTS
+**bold text** ASTRO FUN FACTS
