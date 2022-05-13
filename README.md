@@ -98,3 +98,48 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - He ended his hiatus at the end of February 2020.
 - He is one of the MCs in Show Champion with Astro‘s Sanha and Verivery‘s Kangmin.
 - Moonbin’s ideal type: A girl with a good sense of humor.
+# **ROCKY**
+- His nickname is “Chef Minhyuk”
+- Personality: quiet, very reliable and hardworking
+- Fantagio staff named him “Dancing Machine”
+- Education: Hanlim Multi Arts High School
+- His unofficial fandom name is “Pebble”
+- On July 14, 2011, Minhyuk auditioned for TVN Korea’s Got Talent.
+- He acted in the web drama: “To Be Continued” (2015 Fantagio Web Drama)
+- He acted in the Kdrama “Perseverance Goo Haera” Ep. 1 (2015)
+- Rocky was a participant in “Hit the Stage”.
+- He knows Taekwondo (he holds a fourth rank (Black Belt) now)
+- He revealed he is a big eater.
+- His favorite color is Red.
+- Minhyuk is the 1st trainee that was officially introduced with Photo Test Cut.
+- He created the choreography for the Astro MVs “Fireworks” and “Wake up call”.
+- If he wouldn’t be a singer, he would be a dance teacher.
+- He participated with the rap lyrics for most of their albums, alongside Jinjin.
+- Rocky is the MC of “Sohu Korea”.
+- His role model is BigBang‘s G-Dragon.
+- Rocky is friends with Monsta X‘s Joohoney, Akmu‘s Suhyun, Kim Sae-ron, SF9‘s Chani, Seventeen‘s Seungkwan & Dino.
+- If Rocky was a girl, he would date Sanha. (“Astro Idol Party” 170109)
+- Rocky’s ideal type: A caring, cute and nice girl.
+# **SANHA**
+- His nicknames are Beagle, ddana, and baby tiger
+- Personality: pure and innocent
+- He has 2 older brothers: Junha born in ‘95 and Jeha born in ‘98.
+- He learned to play the guitar from his dad and brothers.
+- He attended A-Sound Music Academy
+- He is Christian.
+- His hobbies: Eating
+- He has a flexible body, he can fit in a bag or in a cupboard.
+- He is allergic to seafood.
+- He can’t drink coffee.
+- His favorite color is Blue.
+- Has 2 cats named Kiyong and Ray.
+- He was accepted as Fantagio iTeen’s trainee on December 16, 2012.
+- He acted in web dramas: “To Be Continued” (2015 Fantagio Web Drama), “Love Formula 11M” (2019).
+- He is the 3rd trainee that was officially introduced with Photo Test Cut.
+- He likes to bully his hyungs a lot. XD
+- His role model: Busker Busker
+- If he wouldn’t be a Kpop singer, he would most probably be a guitarist.
+- Sanha is friends with The Boyz‘s Eric & Sunwoo, AB6IX‘s Daehwi, Golden Child‘s Bomin, Stray Kids‘s Hyunjin and NCT‘s Haechan.
+- If Sanha was a girl, he would date himself. (“Astro Idol Party” 170109)
+- He is one of the MCs in Show Champion with ASTRO‘s Moonbin and Verivery‘s Kangmin.
+- Sanha’s ideal type: A girl who thinks about him a lot and asks him about his day.
