@@ -5,6 +5,7 @@ ASTRO (아스트로) is a South Korean boy group that consists of 6 members: MJ,
 A collection of facts that some fans may not know! This list is far from exhaustive, so feel free to add on! Or you could shoot me a question and see if I know the answer
 ![alt text](https://pbs.twimg.com/media/E6v5ZjVVkAMp2ku?format=jpg&name=large)
 # **JINJIN**
+![alt text](https://pbs.twimg.com/media/FRxFCzOVgAAF873?format=jpg&name=large)
 - His nickname is “Angelic Smile”
 - Personality: a warm person
 - He’s often called the Slow Rapper because of how slow he talks.
@@ -28,6 +29,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - If Jinjin was a girl, he would date Eunwoo because he is extremely handsome.
 - JinJin’s ideal type: A girl with her own opinions and attitudes.
 # **MJ**
+![alt text](https://pbs.twimg.com/media/FRy2LkdacAEwKxb?format=jpg&name=large)
 - His nickname is “The Happy Virus” because he’s always laughing.
 - Personality: he jokes a lot and is mischievous.
 - Contestant of 2012 JYP Ent. x HUM Audition (won a one-year scholarship from Seoul National University)
@@ -52,6 +54,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - MJ announced in Astro Aroha Fanmeet (AAF) that he will enlist in the military on May 9, 2022.
 - MJ’s ideal type: A girl with a nice smile, a good sense of humor and who is similar to him.
 # **EUNWOO**
+![alt text](https://pbs.twimg.com/media/FR9di_2aUAAqMpO?format=jpg&name=large)
 - Eunwoo has a younger brother who is studying in China.
 - His nicknames are “Morning Alarm”, “White Tee Guy”, and “Nunu”
 - He’s also called “Face Genius” (meaning someone who has a crazily handsome face).
@@ -75,6 +78,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - If Eunwoo was a girl, he would date Jinjin. (“Astro Idol Party” 170109)
 - Cha Eunwoo’s ideal type: A girl that’s curious, wise and intelligent.
 # **MOONBIN**
+![alt text](https://pbs.twimg.com/media/FSCOO3CakAA5XcT?format=jpg&name=large)
 - Family: father, mother, younger sister (Moon Sua -Unpretty Rapstar Season 2; Billlie)
 - Personality: tender and warmhearted
 - His nicknames are: U-Know MoonBin (유노문빈), Binnie (빈이), Sleepyhead, Puppycat (because he can make the face of a cat and the face of a puppy)
@@ -99,6 +103,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - He is one of the MCs in Show Champion with Astro‘s Sanha and Verivery‘s Kangmin.
 - Moonbin’s ideal type: A girl with a good sense of humor.
 # **ROCKY**
+![alt text](https://pbs.twimg.com/media/FSHcaUsakAAGgJl?format=jpg&name=large)
 - His nickname is “Chef Minhyuk”
 - Personality: quiet, very reliable and hardworking
 - Fantagio staff named him “Dancing Machine”
@@ -121,6 +126,7 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - If Rocky was a girl, he would date Sanha. (“Astro Idol Party” 170109)
 - Rocky’s ideal type: A caring, cute and nice girl.
 # **SANHA**
+![alt text](https://pbs.twimg.com/media/FSEr7CsaAAAozWR?format=jpg&name=large)
 - His nicknames are Beagle, ddana, and baby tiger
 - Personality: pure and innocent
 - He has 2 older brothers: Junha born in ‘95 and Jeha born in ‘98.
