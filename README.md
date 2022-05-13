@@ -3,7 +3,7 @@
 ASTRO (아스트로) is a South Korean boy group that consists of 6 members: MJ, JinJin, Cha Eunwoo, Moonbin, Rocky and Sanha. The group debuted on February 23rd, 2016, under Fantagio Entertainment.
 
 A collection of facts that some fans may not know! This list is far from exhaustive, so feel free to add on! Or you could shoot me a question and see if I know the answer
-
+![alt text](https://pbs.twimg.com/media/E6v5ZjVVkAMp2ku?format=jpg&name=large)
 # **JINJIN**
 - His nickname is “Angelic Smile”
 - Personality: a warm person
