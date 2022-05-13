@@ -27,3 +27,27 @@ A collection of facts that some fans may not know! This list is far from exhaust
 - He participated with the rap lyrics for most of their albums, alongside Rocky.
 - If Jinjin was a girl, he would date Eunwoo because he is extremely handsome.
 - JinJin’s ideal type: A girl with her own opinions and attitudes.
+# **MJ**
+- His nickname is “The Happy Virus” because he’s always laughing.
+- Personality: he jokes a lot and is mischievous.
+- Contestant of 2012 JYP Ent. x HUM Audition (won a one-year scholarship from Seoul National University)
+- In 2015 appeared in Fantagio Web Drama 투비컨티뉴드 “To Be Continued”.
+- MJ’s favorite superhero: Iron Man.
+- He calls himself “Smile Engine”.
+- His favorite colors are Mint and Yellow.
+- He is the most talkative member of the group.
+- Shoe Size: 255
+- His hobby is drawing.
+- One of his special talents is impersonation.
+- His favorite food is seafood and he says he would like to open up a sushi restaurant one day.
+- The first person he befriended when he joined Fantagio was Sanha.
+- Moonbin said MJ is a little bit weird (4D character)
+- His role model is an actor & singer Lee Seung Gi.
+- MJ is friends with MYTEEN’s Kookheon, ONF‘s Hyojin & E-Tion.
+- If MJ wasn’t a singer, he would be an architectural designer.
+- If MJ was a girl, he would date himself. (“Astro Idol Party” 170109)
+- He was cast as Jamie in the musical “Everybody’s Talking About Jamie” (2020)
+- On August 22, 2020, MJ debuted in the trot idol group Super Five.
+- On November 3, 2021, MJ made his solo debut with the song ‘Get Set Yo’.
+- MJ announced in Astro Aroha Fanmeet (AAF) that he will enlist in the military on May 9, 2022.
+- MJ’s ideal type: A girl with a nice smile, a good sense of humor and who is similar to him.
