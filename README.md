@@ -1,26 +1,10 @@
 # lckyfloid.github.io
-# **ASTRO FUN FACTS** 
+# **FUN FACTS ABOUT ASTRO MEMBERS** 
 ASTRO (아스트로) is a South Korean boy group that consists of 6 members: MJ, JinJin, Cha Eunwoo, Moonbin, Rocky and Sanha. The group debuted on February 23rd, 2016, under Fantagio Entertainment.
 
 A collection of facts that some fans may not know! This list is far from exhaustive, so feel free to add on! Or you could shoot me a question and see if I know the answer
 
 # **JINJIN**
-Stage Name: JinJin (진진)
-Birth Name: Park Jin Woo (박진우)
-Position: Leader, Main Rapper, Lead Dancer
-Birthday: March 15, 1996
-Zodiac Sign: Pisces
-Birthplace: Ilsan, Gyeonggi-do, South Korea.
-Official Height: 174 cm (5’8″) / Real Height: 169 cm (5’7’’)-members exposed JinJin’s real height on their V Live in 2019
-Weight: 63 kg (139 lbs)
-Blood Type: A
-MBTI Type: ENFP
-Subunit: Jinjin & Rocky
-Speciality: Drums
-Instagram: @ast_jinjin
-Weibo: ASTRO_JINJIN
-
-JinJin Facts:
 – His nickname is “Angelic Smile”
 – Personality: a warm person
 – He’s often called the Slow Rapper because of how slow he talks.
